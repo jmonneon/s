@@ -1,3 +1,7 @@
+Olipa Kerran Koulu, Syntymäpäivä ja Autokauppa
+
+Katson Veeraa punoittaviin poskiin kun hänen sormensa liikkuvat kalullani.
+
 Tässä olisi kolme lyhyttä ja suoraan asiaan menevää tarinaa. Pidätkö tällaisesta vai kunnon tarinalla olevasta?
 
 Koulu
